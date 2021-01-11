@@ -1,0 +1,1 @@
+we need a bread , pomogranate , potatoe , onion , namkeen
